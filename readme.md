@@ -1,0 +1,1 @@
+# generic curiosity research topics
